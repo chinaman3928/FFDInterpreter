@@ -3,7 +3,7 @@ FFD Save Editor for WildTangent's FATE, Undiscovered Realms, and Traitor Soul
 
 Reach me on Discord at: chinaman#3929.
 
-Join our server at: https://discord.gg/r2bZDk4C3y.
+Join our FATE server at: https://discord.gg/r2bZDk4C3y.
 
 Remember to back up your save!
 
